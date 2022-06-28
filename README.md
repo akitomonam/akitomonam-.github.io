@@ -1,1 +1,0 @@
-# akitomonam-.github.io
